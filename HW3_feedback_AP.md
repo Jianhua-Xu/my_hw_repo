@@ -1,0 +1,1 @@
+	All of your answers for HW3 were spot on. Really like the chart you plotted in the end for the bonus portion. Visualizations are always helpful to see how the prestige level applies to admissions odds and grows as you get a higher GRE score.
